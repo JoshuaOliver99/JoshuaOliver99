@@ -1,5 +1,9 @@
 Im a Games Programmer at my core, but all things Games Development fascinate me!
 
+I can always be found either learning or deep into a personal project.
+
+Don't be afraid to contact me :)
+
 - 📫 How to reach me ... 
 - LinkedIn, https://www.linkedin.com/in/joshua-simpson-7b4122190/
 - Itch.io, https://joshuaoliversimpson.itch.io/
